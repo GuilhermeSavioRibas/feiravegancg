@@ -6,15 +6,9 @@
 
 ![Flyer](flyer-festa-junina.jpeg)
 
-
 ---
 
 ## 🍽️ Gastronomia:
-
-### Lasvegg
-
-- **Produtos:** Pastel, suco, caipirinha, batidinhas
-- **Instagram:** [@lasvegg](https://instagram.com/lasvegg)
 
 ### NatureVegan's
 
@@ -24,12 +18,17 @@
 ### Cozinha Vegan
 
 - **Produtos:** Salgados, bolos de milho, pé de moleque, cachorro quente, carreteiro
-- **Instagram:** [@cozinhav](https://instagram.com/cozinhav)
+- **Instagram:** [@cozinhavegan.cg](https://instagram.com/cozinhavegan.cg)
 
 ### Puro Pão
 
 - **Produtos:** Focaccias, Pães recheados, Projeto Pão e Arte (estamparia manual em camisetas)
-- **Instagram:** [@puro.pao](https://instagram.com/puro.pao)
+- **Instagram:** [@puropaocaseirocg](https://instagram.com/puropaocaseirocg)
+
+### Lasvegg
+
+- **Produtos:** Pastel, suco, caipirinha, batidinhas
+- **Instagram:** [@lasveggcg](https://instagram.com/lasveggcg)
 
 ### Trevo Veggie
 
@@ -44,7 +43,7 @@
 ### Vegas Food
 
 - **Produtos:** Hambúrgueres, cachorro quente, maçã do amor
-- **Instagram:** [@vegasfood](https://instagram.com/vegasfood)
+- **Instagram:** [@vegasfoodcg](https://instagram.com/vegasfoodcg)
 
 ### Floral Green Vegan
 
@@ -84,7 +83,7 @@
 ### Alergô Gastronomia Inclusiva
 
 - **Produtos:** Pães, bolos, conservas, doces e salgados
-- **Instagram:** [@alergogastronomia](https://instagram.com/alergogastronomia)
+- **Instagram:** [@alergoinclusiva](https://instagram.com/alergoinclusiva)
 
 ### Mara Bebidas
 
@@ -104,12 +103,12 @@
 ### Sítio Primavesi
 
 - **Produtos:** Frutas agroecológicas, pães, bolos, cookies do Cerrado
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@sitioprimavesi](https://instagram.com/sitioprimavesi)
 
 ### Cogumelos do Queridão
 
 - **Produtos:** Cogumelos frescos (Shimeji Branco e Salmão), caponata
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@cogumelosdoqueridao](https://instagram.com/cogumelosdoqueridao)
 
 ### Veglícia
 
@@ -124,7 +123,7 @@
 ### Garaparia do Brás
 
 - **Produtos:** Caldo de cana, água de coco
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@garapariadoBraz](https://instagram.com/garapariadoBraz)
 
 ---
 
@@ -133,7 +132,7 @@
 ### Sandra Padilha
 
 - **Produtos:** Acessórios, turbante, avental
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@sandrapadilha.sp](https://instagram.com/sandrapadilha.sp)
 
 ### Maró Natural
 
@@ -153,12 +152,12 @@
 ### Madre Terra
 
 - **Serviço:** Massagem Quick, sinergias, spray energético, incensos, terço, japamala, guias, amuletos em cristais
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@madreterra.br](https://instagram.com/madreterra.br)
 
 ### Sabonete e Arte Luciana
 
 - **Produtos:** Velas, aromatizador, águas de lençol, sabonetes
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@saboneteearteluciana](https://instagram.com/saboneteearteluciana)
 
 ### Andhy Cosméticos Veganos
 
@@ -168,7 +167,7 @@
 ### Criando Magias
 
 - **Produtos:** Incensos artesanais, sprays terapêuticos, velas, tarô, pomadas caseiras, óleos terapêuticos perfumados
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@criando.magias](https://instagram.com/criando.magias)
 
 ### Botânica Saboaria Artesanal
 
@@ -178,7 +177,7 @@
 ### Palma Ateliê
 
 - **Produtos:** Peças artesanais de cerâmica, cordas
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@palma.atelie](https://instagram.com/palma.atelie)
 
 ### Oficina Panca
 
@@ -195,4 +194,137 @@
 - **Produtos:** Peças personalizadas em resina epóxi, decoração, eternizações afetivas
 - **Instagram:** [@stellamoriggiatelie](https://instagram.com/stellamoriggiatelie)
   
+### Palma Atelie
 
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@palma.atelie](https://instagram.com/palma.atelie) 
+
+### SVB Campo Grande
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@svbcampogrande](https://instagram.com/svbcampogrande)
+
+### Idalene Rocha Nutri
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@idalenerocha_nutri](https://instagram.com/idalenerocha_nutri)
+
+### Engenharia de Alimentos UFMS
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@engenhariadeimentoaufms](https://instagram.com/engenhariadeimentoaufms)
+
+### Brechic MS
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@brechic_ms](https://instagram.com/brechic_ms)
+
+### Me Salva Brechó
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@mesalva.brecho](https://instagram.com/mesalva.brecho)
+
+### Chocos da Tia
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@chocosdatia](https://instagram.com/chocosdatia)
+
+### Tânia Heredia
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@taniaheredia](https://instagram.com/taniaheredia)
+
+### Maris Chinelos
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@maris_chinelos](https://instagram.com/maris_chinelos)
+
+### Aguapé Saboaria
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@aguape_saboaria](https://instagram.com/aguape_saboaria)
+
+### Brechó Chica Maria
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@brecho_chicamariia](https://instagram.com/brecho_chicamariia)
+
+### G. Barros Crochê
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@g.barroscroche](https://instagram.com/g.barroscroche)
+
+### Letícia Moura Fitoterapia
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@leticiamoura.fitoterapia](https://instagram.com/leticiamoura.fitoterapia)
+
+### Unsabier MS
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@unsabierms](https://instagram.com/unsabierms)
+
+### Saboratta MS
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@saboratta.ms](https://instagram.com/saboratta.ms)
+
+### Talicos
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@talicos](https://instagram.com/talicos)
+
+### Gostosuras da Vivy
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@gostosuras_davivy](https://instagram.com/gostosuras_davivy)
+
+### Verone Brechó
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@verone_brecho](https://instagram.com/verone_brecho)
+
+### Repeat Brechó
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@repeat__brecho](https://instagram.com/repeat__brecho)
+
+### Mara Zamban
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@marazamban](https://instagram.com/marazamban)
+
+### Brechó da Beltran
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@brechodabeltran](https://instagram.com/brechodabeltran)
+
+### Jessica Terapeuta Integrativa
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@jessicaterapeutaintegrativa](https://instagram.com/jessicaterapeutaintegrativa)
+
+### Madame Biú Brechó
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@madamebiubrecho](https://instagram.com/madamebiubrecho)
+
+### Studio Flor Design
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@studio.flor.design](https://instagram.com/studio.flor.design)
+
+### Brechó Freedom
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@brechofreedom](https://instagram.com/brechofreedom)
+
+### Barttie Semijoias e Prata
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@Barttie.br](https://instagram.com/Barttie.br)
+
+### Cacimba Sorvetes
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@cacimbasorvetes](https://instagram.com/cacimbasorvetes)
