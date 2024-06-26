@@ -175,11 +175,6 @@
 - **Produtos:** Sabonetes artesanais veganos, cosméticos naturais para rosto, corpo, pés, perfumes para casa
 - **Instagram:** [@botanicasaboaria](https://instagram.com/botanicasaboaria)
 
-### Stella Moriggi Ateliê
-
-- **Produtos:** Peças personalizadas em resina epóxi, decoração, eternizações afetivas
-- **Instagram:** [Link para Instagram não fornecido]
-
 ### Palma Ateliê
 
 - **Produtos:** Peças artesanais de cerâmica, cordas
