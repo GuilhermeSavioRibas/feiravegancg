@@ -1,4 +1,4 @@
-# 🎉 Festa Junina Vegana 🎉
+# 🎉Festa Junina Vegana🎉
 
 **📅 Data:** 30/06/2024  
 **🕒 Horário:** das 15H às 21H  
