@@ -83,6 +83,46 @@
 - **Produtos:** Pães, bolos, conservas, doces e salgados
 - **Instagram:** [@alergogastronomia](https://instagram.com/alergogastronomia)
 
+### Mara Bebidas
+
+- **Produtos:** Bebidas diversas, amendoim cricri, maçã do amor
+- **Instagram:** [@marabebidas](https://instagram.com/marabebidas)
+
+### De Colher em Colher
+
+- **Produtos:** Geleias, conservas, temperos, azeites aromatizados
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Panne Vegan
+
+- **Produtos:** Cookies, brownies, bolo de milho, cuscuz, banoffe, cinnamon rolls, slice cakes, milho cozido, churros
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Sítio Primavesi
+
+- **Produtos:** Frutas agroecológicas, pães, bolos, cookies do Cerrado
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Cogumelos do Queridão
+
+- **Produtos:** Cogumelos frescos (Shimeji Branco e Salmão), caponata
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Veglícia
+
+- **Produtos:** Pizza vegana, pão de queijo vegano, pão italiano vegano
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Paraíso das Cachoeiras
+
+- **Produtos:** Molho Pesto, tempero artesanal, divulgação de passeios
+- **Instagram:** [Link para Instagram não fornecido]
+
+### Garaparia do Brás
+
+- **Produtos:** Caldo de cana, água de coco
+- **Instagram:** [Link para Instagram não fornecido]
+
 ---
 
 ## 🎨 Artesanato e Decoração:
@@ -117,16 +157,6 @@
 - **Produtos:** Velas, aromatizador, águas de lençol, sabonetes
 - **Instagram:** [Link para Instagram não fornecido]
 
-### Mara Bebidas
-
-- **Produtos:** Bebidas diversas, amendoim cricri, maçã do amor
-- **Instagram:** [@marabebidas](https://instagram.com/marabebidas)
-
-### De Colher em Colher
-
-- **Produtos:** Geleias, conservas, temperos, azeites aromatizados
-- **Instagram:** [Link para Instagram não fornecido]
-
 ### Andhy Cosméticos Veganos
 
 - **Produtos:** Saboaria facial, corporal, cosméticos diversos (balm, bálsamos, desodorante, repelente, esfoliante)
@@ -137,35 +167,10 @@
 - **Produtos:** Incensos artesanais, sprays terapêuticos, velas, tarô, pomadas caseiras, óleos terapêuticos perfumados
 - **Instagram:** [Link para Instagram não fornecido]
 
-### Panne Vegan
-
-- **Produtos:** Cookies, brownies, bolo de milho, cuscuz, banoffe, cinnamon rolls, slice cakes, milho cozido, churros
-- **Instagram:** [Link para Instagram não fornecido]
-
 ### Botânica Saboaria Artesanal
 
 - **Produtos:** Sabonetes artesanais veganos, cosméticos naturais para rosto, corpo, pés, perfumes para casa
 - **Instagram:** [@botanicasaboaria](https://instagram.com/botanicasaboaria)
-
-### Sítio Primavesi
-
-- **Produtos:** Frutas agroecológicas, pães, bolos, cookies do Cerrado
-- **Instagram:** [Link para Instagram não fornecido]
-
-### Cogumelos do Queridão
-
-- **Produtos:** Cogumelos frescos (Shimeji Branco e Salmão), caponata
-- **Instagram:** [Link para Instagram não fornecido]
-
-### Veglícia
-
-- **Produtos:** Pizza vegana, pão de queijo vegano, pão italiano vegano
-- **Instagram:** [Link para Instagram não fornecido]
-
-### Garaparia do Brás
-
-- **Produtos:** Caldo de cana, água de coco
-- **Instagram:** [Link para Instagram não fornecido]
 
 ### Stella Moriggi Ateliê
 
@@ -182,7 +187,3 @@
 - **Produtos:** Peças decorativas em bordado manual, quadros em bastidor, broches
 - **Instagram:** [Link para Instagram não fornecido]
 
-### Paraíso das Cachoeiras
-
-- **Produtos:** Molho Pesto, tempero artesanal, divulgação de passeios
-- **Instagram:** [Link para Instagram não fornecido]
