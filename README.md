@@ -195,5 +195,9 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@arte.e.episteme](https://instagram.com/arte.e.episteme)
 
+### Stella Moriggi Atelie
+
+- **Produtos:** Peças personalizadas em resina epóxi, decoração, eternizações afetivas
+- **Instagram:** [@stellamoriggiatelie](https://instagram.com/stellamoriggiatelie)
   
 
