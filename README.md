@@ -85,10 +85,10 @@
 - **Produtos:** Pães, bolos, conservas, doces e salgados
 - **Instagram:** [@alergoinclusiva](https://instagram.com/alergoinclusiva)
 
-### Mara Bebidas
+### Mara Zamban
 
 - **Produtos:** Bebidas diversas, amendoim cricri, maçã do amor
-- **Instagram:** [@marabebidas](https://instagram.com/marabebidas)
+- **Instagram:** [@marazamban](https://instagram.com/marazamban)
 
 ### De Colher em Colher
 
