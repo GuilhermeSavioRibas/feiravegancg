@@ -190,3 +190,10 @@
 - **Produtos:** Peças decorativas em bordado manual, quadros em bastidor, broches
 - **Instagram:** [Link para Instagram não fornecido]
 
+### Arte e Episteme
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@arte.e.episteme](https://instagram.com/arte.e.episteme)
+
+  
+
