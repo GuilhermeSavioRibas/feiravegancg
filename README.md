@@ -265,7 +265,7 @@
 
 ### Saboratta MS
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Conservas de Legumes, Pimentas, Doces caseiros, Geleias, Molhos de Pimenta
 - **Instagram:** [@saboratta.ms](https://instagram.com/saboratta.ms)
 
 ### Talicos
