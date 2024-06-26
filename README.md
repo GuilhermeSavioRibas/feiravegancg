@@ -4,7 +4,7 @@
 **🕒 Horário:** das 15H às 21H  
 **📍 Local:** Rua Barão de Melgaço, 177 - Centro, Campo Grande MS
 
-![Flyer](images/flyer-festa-junina.jpeg)
+![Flyer](flyer-festa-junina.jpeg)
 
 
 ---
