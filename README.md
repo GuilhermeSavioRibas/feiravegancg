@@ -70,6 +70,11 @@
 - **Produtos:** Sucos naturais
 - **Instagram:** [@laranjito](https://instagram.com/laranjito)
 
+### Chocos da Tia
+
+- **Produtos:**  Brownies, cookies, brigadeiros diversos, tortas à base de brownie, bolos de fubá com goiabada e paçoca
+- **Instagram:** [@chocosdatia](https://instagram.com/chocosdatia)
+
 ### Mais que Salada
 
 - **Produtos:** Cachorro quente, bolo de fubá com goiabada, bolo de cenoura com cobertura de chocolate, doce de abóbora, arroz doce, mate gelado
@@ -222,11 +227,6 @@
 
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@mesalva.brecho](https://instagram.com/mesalva.brecho)
-
-### Chocos da Tia
-
-- **Produtos:**  Brownies, cookies, brigadeiros diversos, tortas à base de brownie, bolos de fubá com goiabada e paçoca
-- **Instagram:** [@chocosdatia](https://instagram.com/chocosdatia)
 
 ### Tânia Heredia
 
