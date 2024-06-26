@@ -225,7 +225,7 @@
 
 ### Chocos da Tia
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:**  Brownies, cookies, brigadeiros diversos, tortas à base de brownie, bolos de fubá com goiabada e paçoca
 - **Instagram:** [@chocosdatia](https://instagram.com/chocosdatia)
 
 ### Tânia Heredia
