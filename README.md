@@ -93,12 +93,12 @@
 ### De Colher em Colher
 
 - **Produtos:** Geleias, conservas, temperos, azeites aromatizados
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@decolheremcolher_cg](https://instagram.com/decolheremcolher_cg)
 
 ### Panne Vegan
 
 - **Produtos:** Cookies, brownies, bolo de milho, cuscuz, banoffe, cinnamon rolls, slice cakes, milho cozido, churros
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@panne.vegan](https://instagram.com/panne.vegan)
 
 ### Sítio Primavesi
 
@@ -113,12 +113,17 @@
 ### Veglícia
 
 - **Produtos:** Pizza vegana, pão de queijo vegano, pão italiano vegano
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@vegliciacg](https://instagram.com/vegliciacg)
+
+### Engenharia de Alimentos UFMS
+
+- **Produtos:** Cachorro quente
+- **Instagram:** [@engenhariadeimentoaufms](https://instagram.com/engenhariadeimentoaufms)
 
 ### Paraíso das Cachoeiras
 
 - **Produtos:** Molho Pesto, tempero artesanal, divulgação de passeios
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@paraiso_dascachoeiras](https://instagram.com/paraiso_dascachoeiras)
 
 ### Garaparia do Brás
 
@@ -127,7 +132,7 @@
 
 ### Cacimba Sorvetes
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Sorvetes
 - **Instagram:** [@cacimbasorvetes](https://instagram.com/cacimbasorvetes)
 
 ---
@@ -187,7 +192,7 @@
 ### Oficina Panca
 
 - **Produtos:** Peças decorativas em bordado manual, quadros em bastidor, broches
-- **Instagram:** [Link para Instagram não fornecido]
+- **Instagram:** [@oficinapanca](https://instagram.com/oficinapanca)
 
 ### Arte e Episteme
 
@@ -198,26 +203,15 @@
 
 - **Produtos:** Peças personalizadas em resina epóxi, decoração, eternizações afetivas
 - **Instagram:** [@stellamoriggiatelie](https://instagram.com/stellamoriggiatelie)
-  
-### Palma Atelie
-
-- **Produtos:** [Produtos não informados]
-- **Instagram:** [@palma.atelie](https://instagram.com/palma.atelie) 
 
 ### SVB Campo Grande
 
-- **Produtos:** [Produtos não informados]
 - **Instagram:** [@svbcampogrande](https://instagram.com/svbcampogrande)
 
 ### Idalene Rocha Nutri
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Nutrição Infantil e Vegetariana
 - **Instagram:** [@idalenerocha_nutri](https://instagram.com/idalenerocha_nutri)
-
-### Engenharia de Alimentos UFMS
-
-- **Produtos:** [Produtos não informados]
-- **Instagram:** [@engenhariadeimentoaufms](https://instagram.com/engenhariadeimentoaufms)
 
 ### Brechic MS
 
