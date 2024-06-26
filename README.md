@@ -125,6 +125,11 @@
 - **Produtos:** Caldo de cana, água de coco
 - **Instagram:** [@garapariadoBraz](https://instagram.com/garapariadoBraz)
 
+### Cacimba Sorvetes
+
+- **Produtos:** [Produtos não informados]
+- **Instagram:** [@cacimbasorvetes](https://instagram.com/cacimbasorvetes)
+
 ---
 
 ## 🎨 Artesanato e Decoração:
@@ -324,7 +329,3 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@Barttie.br](https://instagram.com/Barttie.br)
 
-### Cacimba Sorvetes
-
-- **Produtos:** [Produtos não informados]
-- **Instagram:** [@cacimbasorvetes](https://instagram.com/cacimbasorvetes)
