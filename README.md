@@ -4,6 +4,8 @@
 **🕒 Horário:** das 15H às 21H  
 **📍 Local:** Rua Barão de Melgaço, 177 - Centro, Campo Grande MS
 
+[![Flyer](https://www.instagram.com/p/C8IZgityinm/media/?size=l)](https://www.instagram.com/p/C8IZgityinm/)
+
 ---
 
 ## 🍽️ Gastronomia:
