@@ -323,3 +323,8 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@Barttie.br](https://instagram.com/Barttie.br)
 
+### DaTuller Bijux e Folheados
+
+- **Produtos:** Bijux e Folheados
+- **Instagram:** [@datuller](https://instagram.com/datuller)
+
