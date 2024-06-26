@@ -3,7 +3,7 @@
 ## Local: Rua Barão de Melgaço, 177 - Centro, Campo Grande MS.
 
 
-# :sunflower: Lista de Expositores:
+# 🌻 Lista de Expositores:
 
 * [SVB Campo Grande](https://instagram.com/svbcampogrande)
 * [Idalene Rocha Nutri](https://instagram.com/idalenerocha_nutri)
