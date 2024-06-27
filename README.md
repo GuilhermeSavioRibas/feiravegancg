@@ -85,6 +85,11 @@
 - **Produtos:** Geladinhos de frutas, maçã do amor, algodão doce
 - **Instagram:** [@geladinhogourmet](https://instagram.com/geladinhogourmet)
 
+### Veggie Sabor 
+
+- **Produtos:** Salgados(Folhado recheio milho cremoso, Churrasco de seitan com farofa, ⁠Baião de dois com vinagrete e carne de jaca, ⁠Caldo verde com linguiça), Doces(Pipoca Gourmet, Bolo de fubá com goiabada e coco, Bolo de Cacau com paçoca, Curau), Bebidas(Fanta natural de laranja e cenoura, Suco de caju e gengibre, Água mineral com gás, Água mineral sem gás)
+- **Instagram:** [@marmitariaveggiesabor](https://instagram.com/marmitariaveggiesabor)
+
 ### Alergô Gastronomia Inclusiva
 
 - **Produtos:** Pães, bolos, conservas, doces e salgados
