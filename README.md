@@ -263,7 +263,7 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@unsabierms](https://instagram.com/unsabierms)
 
-### Saboratta MS
+### Saboratta - Delícias Caseiras
 
 - **Produtos:** Conservas de Legumes, Pimentas, Doces caseiros, Geleias, Molhos de Pimenta
 - **Instagram:** [@saboratta.ms](https://instagram.com/saboratta.ms)
