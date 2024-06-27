@@ -145,6 +145,11 @@
 - **Produtos:** Sorvetes
 - **Instagram:** [@cacimbasorvetes](https://instagram.com/cacimbasorvetes)
 
+### Prana kombucha
+
+- **Produtos:** Kombucha
+- **Instagram:** [@kombuchaprana](https://instagram.com/kombuchaprana)
+
 ---
 
 ## 🎨 Artesanato e Decoração:
@@ -290,7 +295,7 @@
 
 ### Brechó da Beltran
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Roupas e calçados usados
 - **Instagram:** [@brechodabeltran](https://instagram.com/brechodabeltran)
 
 ### Jessica Terapeuta Integrativa
@@ -328,12 +333,22 @@
 - **Produtos:** Bijux e Folheados
 - **Instagram:** [@datuller](https://instagram.com/datuller)
 
-### Prana kombucha
-
-- **Produtos:** Kombucha
-- **Instagram:** [@kombuchaprana](https://instagram.com/kombuchaprana)
-
 ### Shanti Yoga
 
 - **Produtos:** Yoga
 - **Instagram:** [@shantiyogacg](https://instagram.com/shantiyogacg)
+
+### Rafiusk livraria sebo itinerante
+
+- **Produtos:** Livros usados ,gibis e HQs
+- **Instagram:** [@rafiusk.livrariasebo](https://instagram.com/rafiusk.livrariasebo)
+
+### Brechó Abacaxi 
+
+- **Produtos:** Moda sustentável. Peças semi novas a vintage, masculino/feminino, sapatos e assessórios
+- **Instagram:** [@abacaxi_vintagecg_brecho](https://instagram.com/abacaxi_vintagecg_brecho)
+
+### Lu_Tear_Tapetes
+
+- **Produtos:** Tapetes
+- **Instagram:** [@luteartapetes](https://instagram.com/luteartapetes)
