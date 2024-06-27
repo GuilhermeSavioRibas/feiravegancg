@@ -53,7 +53,7 @@
 ### Bug Faminto
 
 - **Produtos:** Empadas, Kibes e sanduíches veganos
-- **Instagram:** [@bugfaminto](https://instagram.com/bugfaminto)
+- **Instagram:** [@bugfamintoveg](https://instagram.com/bugfamintoveg)
 
 ### Keijú
 
