@@ -96,7 +96,7 @@
 
 ### Mara Zamban
 
-- **Produtos:** Bebidas diversas, amendoim cricri, maçã do amor
+- **Produtos:** Bebidas diversas, amendoim cri-cri, paçoquinha, estalinho, amendoim salgado
 - **Instagram:** [@marazamban](https://instagram.com/marazamban)
 
 ### De Colher em Colher
