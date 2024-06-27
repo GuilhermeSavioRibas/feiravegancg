@@ -323,3 +323,17 @@
 - **Produtos:** Bijux e Folheados
 - **Instagram:** [@datuller](https://instagram.com/datuller)
 
+### DaTuller Bijux e Folheados
+
+- **Produtos:** Bijux e Folheados
+- **Instagram:** [@datuller](https://instagram.com/datuller)
+
+### Prana kombucha
+
+- **Produtos:** Kombucha
+- **Instagram:** [@kombuchaprana](https://instagram.com/kombuchaprana)
+
+### Shanti Yoga
+
+- **Produtos:** Yoga
+- **Instagram:** [@shantiyogacg](https://instagram.com/shantiyogacg)
