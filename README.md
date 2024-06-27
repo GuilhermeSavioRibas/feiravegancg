@@ -167,7 +167,7 @@
 ### Coletivo Fuinha's Gang
 
 - **Produtos:** Desenhos impressos, adesivos, chaveiros, cadernos artesanais
-- **Instagram:** [@fuinhasgang](https://instagram.com/fuinhasgang)
+- **Instagram:** [@fuinhasgangcoletivo](https://instagram.com/fuinhasgangcoletivo)
 
 ### Madre Terra
 
