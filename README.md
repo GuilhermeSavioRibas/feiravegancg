@@ -293,11 +293,6 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@repeat__brecho](https://instagram.com/repeat__brecho)
 
-### Mara Zamban
-
-- **Produtos:** [Produtos não informados]
-- **Instagram:** [@marazamban](https://instagram.com/marazamban)
-
 ### Brechó da Beltran
 
 - **Produtos:** [Produtos não informados]
