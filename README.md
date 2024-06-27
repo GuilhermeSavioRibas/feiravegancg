@@ -128,7 +128,7 @@
 ### Engenharia de Alimentos UFMS
 
 - **Produtos:** Cachorro quente
-- **Instagram:** [@engenhariadeimentoaufms](https://instagram.com/engenhariadeimentoaufms)
+- **Instagram:** [@engenhariadealimentosufms](https://instagram.com/engenhariadealimentosufms)
 
 ### Paraíso das Cachoeiras
 
