@@ -78,7 +78,7 @@
 ### Mais que Salada
 
 - **Produtos:** Cachorro quente, bolo de fubá com goiabada, bolo de cenoura com cobertura de chocolate, doce de abóbora, arroz doce, mate gelado
-- **Instagram:** [@maisquesalada](https://instagram.com/maisquesalada)
+- **Instagram:** [@maisquesaladaveg](https://instagram.com/maisquesaladaveg)
 
 ### Geladinho Gourmet da Vivy
 
