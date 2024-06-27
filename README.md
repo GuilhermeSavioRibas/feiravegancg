@@ -25,10 +25,10 @@
 - **Produtos:** Focaccias, Pães recheados, Projeto Pão e Arte (estamparia manual em camisetas)
 - **Instagram:** [@puropaocaseirocg](https://instagram.com/puropaocaseirocg)
 
-### Lasvegg
+### Las Vegg
 
 - **Produtos:** Pastel, suco, caipirinha, batidinhas
-- **Instagram:** [@lasveggcg](https://instagram.com/lasveggcg)
+- **Instagram:** [@las.vegg](https://instagram.com/las.vegg)
 
 ### Trevo Veggie
 
