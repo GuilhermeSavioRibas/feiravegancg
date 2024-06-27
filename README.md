@@ -248,9 +248,9 @@
 - **Produtos:** [Produtos não informados]
 - **Instagram:** [@brecho_chicamariia](https://instagram.com/brecho_chicamariia)
 
-### G. Barros Crochê
+### G Barros Crochê
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Bolsas, Chaveiros, Lembrancinhas, Cachepôs
 - **Instagram:** [@g.barroscroche](https://instagram.com/g.barroscroche)
 
 ### Letícia Moura Fitoterapia
