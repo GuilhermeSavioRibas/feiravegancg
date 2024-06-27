@@ -159,11 +159,6 @@
 - **Produtos:** Sabonetes e xampu naturais, óleos essenciais, hidrolatos agroflorestais
 - **Instagram:** [@maronatural](https://instagram.com/maronatural)
 
-### Melissa
-
-- **Atividade:** Pintura facial infantil
-- **Instagram:** [Link para Instagram não fornecido]
-
 ### Coletivo Fuinha's Gang
 
 - **Produtos:** Desenhos impressos, adesivos, chaveiros, cadernos artesanais
@@ -206,7 +201,7 @@
 
 ### Arte e Episteme
 
-- **Produtos:** [Produtos não informados]
+- **Produtos:** Pintura facial infantil
 - **Instagram:** [@arte.e.episteme](https://instagram.com/arte.e.episteme)
 
 ### Stella Moriggi Atelie
