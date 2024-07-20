@@ -1,5 +1,7 @@
 # 🎉Festa Junina Vegana🎉
 
+<https://guilhermesavioribas.github.io/feiravegancg/>
+
 **📅 Data:** 30/06/2024  
 **🕒 Horário:** das 15H às 21H  
 **📍 Local:** Rua Barão de Melgaço, 177 - Centro, Campo Grande MS
